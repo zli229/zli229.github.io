@@ -82,5 +82,4 @@ Right aligned columns
 
 ![Minion](https://media.discordapp.net/attachments/825514059972739112/1104131748809420900/White_A_girl_with_light_yellow_hair_teenager_cute_wearing_a_tan_b4e57f18-80d4-48cb-a115-a72dbbde40f8.png?ex=653c1352&is=65299e52&hm=23f8d369f78c71932205c1b982d2756e7cfc9475e68024b9bf0935f4430b818f&=&width=549&height=549)
 
-## The End!
 
